@@ -8,7 +8,7 @@
 
 🎥 I'm also attempting to improve my skills in several other hobbies of mine, including 📷 landscape/urban photography, 🎥 film analysis and critique, ✍🏽 video game critique, and 🎵 music curation. 🈸 I'm also still practicing Japanese via DuoLingo, hoping to develop a working proficiency, possibly even fluency.
 
-📫 I have a Twitter (@Shadownails), an Instagram (@VocabularianBob), a LinkedIn, a Spotify, and a Letterboxd account.
+📫 I have a Twitter (@VocabularianBob), an Instagram (@VocabularianBob), a LinkedIn, a Spotify, and a Letterboxd account.
 
 <!---
 - 👋 Hi, I’m @jamesrhoyt
